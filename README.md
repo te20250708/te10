@@ -12,6 +12,6 @@
 视频质量也是关键，高清画质和流畅播放能提供更好的观影体验。定期更新内容能确保用户始终能看到最新的资源。分类和筛选功能帮助用户快速找到感兴趣的影片，提升平台效率。
 此外，隐私保护同样重要，平台必须保障用户信息安全。总之，选择一个安全、高清、更新频繁的平台，有助于提升用户体验并提高“日本AV免费”关键词的排名。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/te20250708/te10 ）</span>
 
 
